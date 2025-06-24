@@ -1,1 +1,1 @@
-# suervivencia
+# supervivencia
